@@ -1,0 +1,1 @@
+AI competions on AI workshop
